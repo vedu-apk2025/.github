@@ -11,13 +11,14 @@
 
 ## What is Vedu APK ?
 
+## ⬇️ Link Download : https://modhello.com  📲
+
 **Vedu APK** is a versatile video player app designed for Android devices, allowing users to stream and enjoy high-quality content with ease. Supporting various video formats, including 4K, HD, and Ultra HD, the app provides a smooth viewing experience without interruptions from ads or buffering. Whether you're on a phone or tablet, **Vedu APK** ensures a top-notch streaming experience across multiple platforms.
 
 ## Key Features of Vedu APK
 
 **Vedu APK** is not just a simple video player; it brings a variety of exciting features to the table:
 
-## ⬇️ Link Download : https://modhello.com  📲
 ![vedu-apk-download-for-ios](https://github.com/user-attachments/assets/deb3d584-cf9a-4a7d-a5ac-7a3ee66dce61)
 
 
